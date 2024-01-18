@@ -10,11 +10,13 @@ let's call it special kind of relationship
 
 
 
+
 sb who will care abt ur well bein
 
 sb enjoyin spendin time with u
 
 sb plannin to one day meet u in person
+
 
 
 
